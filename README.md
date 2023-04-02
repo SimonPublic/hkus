@@ -10,4 +10,4 @@ https://d1gx3j8kwj94us.cloudfront.net/help/appstore
 
 安装完成后，填写推荐ID：132242478  
 
-联系我安排券商开户
+
